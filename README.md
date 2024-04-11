@@ -1,2 +1,0 @@
-# kalejaiyeportfolio
-# profilecard
